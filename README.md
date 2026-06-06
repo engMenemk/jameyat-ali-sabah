@@ -1,1 +1,0 @@
-# jameyat-ali-sabah
